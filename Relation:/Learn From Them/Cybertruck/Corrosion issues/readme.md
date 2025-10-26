@@ -10,3 +10,6 @@ sch:
 
 # News:
 - https://www.businessinsider.com/tesla-cybertruck-owners-starting-rust-rain-orange-specks-elon-musk-2024-2#
+
+# Blog:
+- https://www.meadmetals.com/blog/will-stainless-steel-rust
