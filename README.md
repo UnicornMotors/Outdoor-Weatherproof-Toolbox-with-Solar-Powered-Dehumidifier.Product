@@ -1,0 +1,2 @@
+# Outdoor-Weatherproof-Toolbox-with-Solar-Powered-Dehumidifier.Product
+If you store tools outdoors in a toolbox they will get corroded, guaranteed. 5 Gallon buckets only work if they have the rubber O-ring seal, and even then they get cracked up by the sun. Solve this problem Permanently, using engineering! A welded galvanized &amp; painted toolbox with a weather proof seal and humidity sensor controlled Dehumidifier.
